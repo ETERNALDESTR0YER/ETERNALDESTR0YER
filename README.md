@@ -1,16 +1,38 @@
-### Hi there 👋
+<div><p align="center"> <img width="380" src="https://i.imgur.com/2mCKfx2.png" alt="cr: 7mb_yut"></p>
+</div>
 
-<!--
-**GLITT3RL4NC3/GLITT3RL4NC3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+	HELLO!!		
 
-Here are some ideas to get you started:
+<p align="center">
+I'M N⠀, BUT YOU CAN CALL ME LULU<i><s>/AKALI</s></i>	SINCE I MOSTLY SIT AS HER!!
+<p align="center">⠀//⠀⠀⠀⠀⠀ 18yo⠀⠀⠀⠀⠀ //
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀
+
+
+## ❗❗ BEFORE YOU INTERACT...
+
+> i am critical of my interests ,
+
+
+> often a quiet watcher but idm chatting,,⠀just keep in mind that i'm realllyyy awkward around unfamiliar ppl ,
+
+
+> i'm usually off-tab, so if you want me to see your message it's better if you whisper me .
+
+## ❌  DO NOT INTERACT IF... 
+
+>you're racist, transphobic, xenophobic [(. . .)](https://dni-criteria.carrd.co)    ,
+
+> under 15yo ,
+
+
+> make a fuss about you being hidden and bothering my friends with it⠀⠀<sub>(i will not unhide you anyway) .</sub> 
+
+
+⠀
+
+
+
+ 
