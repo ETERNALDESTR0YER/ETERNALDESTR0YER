@@ -5,7 +5,7 @@
 	HELLO!!		
 
 <p align="center">
-YOU CAN CALL ME <b>⠀LULU ⠀⁄⠀V </b> ⠀SINCE I MOSTLY SIT AS THEM!!
+CALL ME⠀<b>V</b>⠀/⠀<i><s>NAYTHE</s></i>⠀/⠀<i><s>LULU</s></i>⠀<i>!!</i>
 <p align="center">⠀//⠀⠀⠀⠀⠀ 18yo⠀⠀⠀⠀⠀ //
 
 ⠀
@@ -15,6 +15,7 @@ YOU CAN CALL ME <b>⠀LULU ⠀⁄⠀V </b> ⠀SINCE I MOSTLY SIT AS THEM!!
 
 > i am critical of my interests ,
 
+> i use slurs i can reclaim ,
 
 > often a quiet watcher but idm chatting,,⠀just keep in mind that i'm realllyyy awkward around unfamiliar ppl ,
 
