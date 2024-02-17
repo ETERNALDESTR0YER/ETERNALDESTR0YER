@@ -5,7 +5,7 @@
 	HELLO!!		
 
 <p align="center">
-I'M NATHAN⠀, BUT YOU CAN CALL ME LULU<i><s>/ V </s></i>	SINCE I MOSTLY SIT AS HER!!
+I'M <B>NAYTHE</B>⠀, BUT YOU CAN CALL ME <b>⠀LULU ⠀⁄⠀V </b>  ⠀SINCE I MOSTLY SIT AS THEM!!
 <p align="center">⠀//⠀⠀⠀⠀⠀ 18yo⠀⠀⠀⠀⠀ //
 
 ⠀
