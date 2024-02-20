@@ -1,11 +1,11 @@
-<div><p align="center"> <img width="380" src="https://i.imgur.com/2mCKfx2.png" alt="cr: 7mb_yut"></p>
+<div><p align="center"> <img width="260" src="https://i.imgur.com/UDT6u9t.png" ></p>
 </div>
 
 <p align="center">
 	HELLO!!		
 
 <p align="center">
-CALL ME⠀<b>V</b>⠀/⠀<i><s>NAYTHE</s></i>⠀/⠀<i><s>LULU</s></i>⠀<i>!!</i>
+CALL ME⠀<b>V</b>⠀/⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
 <p align="center">⠀//⠀⠀⠀⠀⠀ 18yo⠀⠀⠀⠀⠀ //
 
 ⠀
@@ -14,8 +14,6 @@ CALL ME⠀<b>V</b>⠀/⠀<i><s>NAYTHE</s></i>⠀/⠀<i><s>LULU</s></i>⠀<i>!!</
 ## ❗❗ BEFORE YOU INTERACT...
 
 > i am critical of my interests ,
-
-> i use slurs i can reclaim ,
 
 > often a quiet watcher but idm chatting,,⠀just keep in mind that i'm realllyyy awkward around unfamiliar ppl ,
 
