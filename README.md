@@ -15,7 +15,7 @@ CALL ME⠀<b>V</b>⠀/⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
 
 > i am critical of my interests ,
 
-> often a quiet watcher but idm chatting,,⠀just keep in mind that i'm realllyyy awkward around unfamiliar ppl ,
+> often a quiet watcher but idm chatting,,⠀just keep in mind that i'm really awkward around unfamiliar ppl+ IM SEMI-VERBAL!!! ,
 
 
 > i'm usually off-tab, so if you want me to see your message it's better if you whisper me .
