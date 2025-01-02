@@ -5,13 +5,15 @@
 	HELLO!!		
 
 <p align="center">
-CALL ME⠀<b>V</b>⠀/⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
-<p align="center">⠀//⠀⠀⠀⠀⠀ 18yo⠀⠀⠀⠀⠀ //
+CALL ME⠀<b>V</b>⠀//⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
+<p align="center">⠀⠀⠀⠀⠀⠀ SD.V⠀fictkin⠀/⠀18⠀/⠀bpad+autistic⠀⠀⠀⠀⠀⠀ 
 
 ⠀
 
 
 ## ❗❗ BEFORE YOU INTERACT...
+
+
 
 > i am critical of my interests ,
 
@@ -22,12 +24,12 @@ CALL ME⠀<b>V</b>⠀/⠀<i><s>NAYTHE</s></i>⠀<i>!!</i>
 
 ## ❌  DO NOT INTERACT IF... 
 
->you're racist, transphobic, xenophobic [(. . .)](https://dni-criteria.carrd.co)    ,
+>you're transphobic, xenophobic [(. . .)](https://dni-criteria.carrd.co)    ,
 
-> under 15yo ,
+> under 14yo ,
 
 
-> make a fuss about you being hidden and bothering my friends with it⠀⠀<sub>(i will not unhide you anyway) .</sub> 
+> make a fuss about you being hidden and bothering my friend(s with it⠀⠀<sub>(i will not unhide you anyway) .</sub> 
 
 
 ⠀ 
